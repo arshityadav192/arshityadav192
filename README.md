@@ -43,8 +43,10 @@ Coming Soon! 🚀
 
 ## 🤝 Connect With Me
 
-- LinkedIn: Your LinkedIn Profile
-- GitHub: Your GitHub Profile
+- LinkedIn: www.linkedin.com/in/
+arshit-yadav-ab619b387
+
+- GitHub: arshityadav192
 - 
 
 
